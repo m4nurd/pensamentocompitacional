@@ -1,1 +1,2 @@
 # pensamentocompitacional
+emanuely machado 
